@@ -6,8 +6,7 @@ publicationDate: 2024-10-15-19:13:00
 thumbnail: 'https://thewhisperbox.files.wordpress.com/2014/11/maxresdefault.jpg'
 slug: "naruto-shippuden"
 ---
-"Naruto Shippuden" es la continuación del anime "Naruto", que sigue la historia del joven ninja Naruto Uzumaki en su camino hacia convertirse en el Hokage, el líder de su aldea.
-
+"Naruto Shippuden" es la continuación del anime "Naruto", que sigue la historia del joven ninja Naruto Uzumaki en su camino hacia convertirse en el Hokage.
 
 La serie no solo esta enfocada  en las batallas y las técnicas ninjas,  también muestra temas de amistad, sacrificio,lealtal,discriminacion,venganza y redención. Naruto, junto a sus amigos y compañeros, enfrenta enemigos poderosos como la organización Akatsuki, que busca capturar a los Jinchuuriki y liberar a los bijuus, las bestias con colas que poseen un poder inmenso.
 En lo personal, me ha gustado muchísimo, es un anime que te atrapa con facilidad y resulta muy emocionante, claro, siendo sincero, hay bastantes episodios de relleno, es decir, capítulos que no son esenciales para la trama principal.

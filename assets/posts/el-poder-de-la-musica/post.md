@@ -12,7 +12,7 @@ slug: "el-poder-de-la-musica"
 La música es una forma de arte y expresión que utiliza sonidos organizados en el tiempo. Se compone de diversos elementos, como el ritmo, la melodía, la armonía y la dinámica. Estos componentes se combinan para crear composiciones que pueden evocar emociones, contar historias o simplemente proporcionar entretenimiento.
 
 Dejemos de lado la teoría y profundicemos un poco más, la música no solo se percibe a través de los sentidos auditivos, es mucho más que eso. Es un conjunto de emociones que se siente y se transmite a través de las canciones. La música nos acompaña en todas nuestras actividades: trabajar, estudiar, programar, escribir. 
-Justo ahora, mientras escribo este texto, estoy escuchando música que me gusta por su ritmo, lo cual me ayuda a concentrarme en lo que hago, además, la música también se baila y, en actividades sociales, genera un ambiente de risas y de disfrute. Por supuesto, cada persona tiene sus propios gustos y ritmos favoritos, lo que puede ser agradable para uno, para otro puede ser solo un ruido molesto. 
+Justo ahora, mientras escribo este texto, estoy escuchando música que me gusta por su ritmo, lo cual me ayuda a concentrarme en lo que hago, además, la música también se baila y,  en actividades sociales, genera un ambiente de risas y de disfrute. Por supuesto, cada persona tiene sus propios gustos y ritmos favoritos, lo que puede ser agradable para uno, para otro puede ser solo un ruido molesto. 
 
 La música nos conecta con otras culturas, ciudades y personas, convirtiéndose en arte en todo el sentido de la palabra.
 
